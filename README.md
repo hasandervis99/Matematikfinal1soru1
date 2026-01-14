@@ -1,0 +1,1 @@
+# Matematikfinal1soru1
